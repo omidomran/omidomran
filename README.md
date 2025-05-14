@@ -1,6 +1,6 @@
 <p>
 شرکت <a href="https://omidomranco.com/" target="_blank" rel="noopener noreferrer">امید عمران سهند</a> با سال‌ها تجربه در حوزه‌ی اتوماسیون صنعتی، 
-<a href="https://omidomranco.com/" target="_blank" rel="noopener noreferrer">طراحی سیستم‌های انتقال مواد</a> و برنامه‌نویسی PLC، به‌عنوان یکی از پیشگامان صنعت در ایران شناخته می‌شود. تخصص‌های ما:
+<a href="[https://omidomranco.com/](https://omidomranco.com/%d9%86%d9%88%d8%a7%d8%b1-%d9%86%d9%82%d8%a7%d9%84%d9%87-%da%86%db%8c%d8%b3%d8%aa/)" target="_blank" rel="noopener noreferrer">طراحی سیستم‌های انتقال مواد</a> و برنامه‌نویسی PLC، به‌عنوان یکی از پیشگامان صنعت در ایران شناخته می‌شود. تخصص‌های ما:
 </p>
 
 <ul>
